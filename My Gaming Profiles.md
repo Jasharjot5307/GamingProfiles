@@ -3,3 +3,4 @@
 2. Battlegrounds Mobile India UID → 55610408302
 3. Clash of Clans Usertag → #G8P0U9JUP
 4. Clash Royal Usertag → #U9JJGLVGV
+5. Pokemon Unite Trainer ID → HC4RK00
